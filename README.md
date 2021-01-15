@@ -1,7 +1,5 @@
-### hello meanie
+### #CYTHOSASEC
 
+https://cythosa.xyz
 
-my name is envy. i currently co own ayorah (https://twitter.com/AyorahS)
-14 years old
-
-add me on discord :DDD
+reach me at [https://discord.com/users/776589378591260683]
